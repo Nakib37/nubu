@@ -1,1 +1,1 @@
-# nubu
+tere mamike chodo
